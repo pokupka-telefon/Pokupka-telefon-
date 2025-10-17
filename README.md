@@ -1,2 +1,0 @@
-# Pokupka-telefon-
-Pokupka"telefon"
